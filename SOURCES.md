@@ -1,0 +1,1 @@
+素材由用户提供，原文件保持不变。头图使用上一版指挥音乐的笑脸形象（https://www.dora-world.com/assets/images/characters/doraemon/doraemon/d_001_card_detail.png）；使用用户第3张眨眼形象、第12张胜利手势，裁切并去除外侧背景；第8张PPT插图完整缩放，保留来源标记。未将角色插图作为原创或开源素材授权。智慧农业链路为兴趣方向示意。动画只用于装饰，不显示虚构运行数据。
